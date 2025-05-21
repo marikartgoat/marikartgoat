@@ -1,3 +1,3 @@
 ### haiiiiiii ;3
 #### im trapped.... trapped in the computer..... help ..me
-![](wallpaper.png)
+![wallpaper.png](wallpaper.png)
